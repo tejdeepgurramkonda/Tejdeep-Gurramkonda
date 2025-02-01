@@ -22,7 +22,7 @@
 
 ### 📫 Connect with Me:
 - 📧 Email: [tejdeepgurramkonda@gmail.com](mailto:tejdeepgurramkonda@gmail.com)  
-- 🔗 LinkedIn: [www.linkedin.com/in/tejdeep-gurramkonda](www.linkedin.com/in/tejdeep-gurramkonda)  
+- 🔗 LinkedIn: [www.linkedin.com/in/tejdeep-gurramkonda](https://www.linkedin.com/in/tejdeep-gurramkonda/)  
 - 🐦 X: [@Tejdeep_G](https://x.com/Tejdeep_G)  
 ---
 
